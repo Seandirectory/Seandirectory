@@ -1,6 +1,8 @@
 # Nilspace
 Hey, i prefer to use pronouns They/Them or He/Him, please don't use She/Her for me, thank you.
-I like to be called Sean/Seil but you can call me Koshii/Koi too idm.
+
+I like to be called Sean/Seil or Beatzz (My old name for old friends only !)  
+I'm pretty selective about who i follow/only follow my friends so sorry if i don't follow back;(
 
 ***//PLEASE INTERACT CAREFULLY WITH ME, ESPECIALLY WHEN YOU MENTION SEAN!!! I have unstable mood sobs//***
 ![Image](https://github.com/user-attachments/assets/818ce37a-575b-4ef1-8263-ab0c303e305b)
@@ -9,3 +11,9 @@ I like to be called Sean/Seil but you can call me Koshii/Koi too idm.
 !ARGs: *Seildirectory*, IHasAFaceLULZ, Brandonworks, Rochas313, Recall A Hollow Heart, CDArchives, 4amanda4, Skatingrease, House encounter.
 
 !Kins: **Sean**(THE MOST HEAVY KIN), Bluudud, C00lkidd[TRUD], Periastron(?)
+
+***More info is on my strawpage and pronouns ^_^ !***
+
+## Some of my other socials!
+- [Toyhouse](https://toyhou.se/Koshilly)
+- [Roblox profile](https://www.roblox.com/users/3260878875/profile)
