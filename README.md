@@ -1,16 +1,17 @@
- <p align="center">
+<p align="center">
   <img src="https://github.com/user-attachments/assets/8f265012-1d9d-4270-89ea-af469555e2cc" />
 </p>
 
 
 - C+H Freely, always welcome ^_^  
-- Cover uncomfort/trigger unless friends sorry! I mostly offtab so w2i.  
+- Cover VERY uncomfort/trigger unless friends sorry! I mostly offtab so w2i.  
 - Read my pronouns before you interact/with caution. Don't ever copy my skin or i'll strangle u.  
 - I'm online on pony town a lot, even though my playtime is nonexistent so don't mind seeing me in a certain spot all the time LOL.  
 - Sometimes I feel awkward sitting with a lot of ppl who are "not" my friends, I tend to leave and find a more empty seat. sorry  
-- I will always be comfortable with C+H even if my mood is unstable, but please don't try to interact with me at that time.!
+- I will always be comfortable with C+H even if my mood is unstable, but please don't try to interact with me at that time.!  
+- Forsaken & Dandy's World pls iwec. Kit/Emojicat community DNI.
 
-  ![Image](https://github.com/user-attachments/assets/4e54fa22-f47e-40cd-9cc8-8702c02f2132)  ![Image](https://github.com/user-attachments/assets/aaa54deb-0c08-4332-85f2-da9e9373285b)  ![Image](https://github.com/user-attachments/assets/87cd2784-b9b1-4161-a0b9-ade8163ed052)  ![Image](https://github.com/user-attachments/assets/0b5470c0-acf4-44dc-a2bf-b1194d9edc03)  ![Image](https://github.com/user-attachments/assets/29000ff3-6903-4e85-b9d9-511123a41b92)
+  ![Image](https://github.com/user-attachments/assets/4e54fa22-f47e-40cd-9cc8-8702c02f2132)  ![Image](https://github.com/user-attachments/assets/0b5470c0-acf4-44dc-a2bf-b1194d9edc03)  ![Image](https://github.com/user-attachments/assets/87cd2784-b9b1-4161-a0b9-ade8163ed052)  ![Image](https://github.com/user-attachments/assets/29000ff3-6903-4e85-b9d9-511123a41b92) ![Image](https://github.com/user-attachments/assets/aaa54deb-0c08-4332-85f2-da9e9373285b)
 
 
 <img width="1526" height="715" alt="Image" src="https://github.com/user-attachments/assets/26eafd60-c7fc-4399-8a15-6de4a104eba3" />  
@@ -59,3 +60,6 @@ I'm pretty selective about who i follow/only follow my friends so sorry if i don
 - [Roblox profile](https://www.roblox.com/users/3260878875/profile)
 
   ![Image](https://github.com/user-attachments/assets/86e39b28-9877-475f-85eb-1080f791d716)  ![Image](https://github.com/user-attachments/assets/5193dda0-8897-4248-8316-f2793dc1b628)
+
+<img width="2000" height="2048" alt="Image" src="https://github.com/user-attachments/assets/d17a3740-a1be-47b2-b7aa-a0261186d3d5" />
+<p align="center">*just my art lol*</p>
