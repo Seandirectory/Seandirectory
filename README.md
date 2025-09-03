@@ -1,4 +1,10 @@
 <p align="center">
+  <a href="https://seildoherty.straw.page/">Strawpage</a> |
+  <a href="https://beatzz0fsean.atabook.org/">Atabook</a> |
+  <a href="https://guns.lol/seandirectory">Guns.lol</a> |
+  <a href="https://toyhou.se/Koshilly">Toyhouse</a>
+
+<p align="center">
   <img src="https://github.com/user-attachments/assets/8f265012-1d9d-4270-89ea-af469555e2cc" />
 </p>
 
@@ -44,8 +50,6 @@ I'm pretty selective about who i follow/only follow my friends so sorry if i don
 
 !Kins: **Sean**(THE MOST HEAVY KIN), Bluudud, C00lkidd[TRUD], Periastron(?)
 
-
-<br>
 <br>
 <br>
 
@@ -57,12 +61,10 @@ I'm pretty selective about who i follow/only follow my friends so sorry if i don
   <img src="https://github.com/user-attachments/assets/5e6ac2c8-247a-4794-a03c-e43f2b652988" /> 
 </p>  
 
-
-## Some of my other socials!
-- [Toyhouse](https://toyhou.se/Koshilly)
-- [Roblox profile](https://www.roblox.com/users/3260878875/profile)
-
-  ![Image](https://github.com/user-attachments/assets/86e39b28-9877-475f-85eb-1080f791d716)  ![Image](https://github.com/user-attachments/assets/5193dda0-8897-4248-8316-f2793dc1b628)
+<p align="center">
+  <a href="https://youtu.be/Q1oNU__KRqk?si=UKbTA5JwZQtkZRwu"><img src="https://github.com/user-attachments/assets/86e39b28-9877-475f-85eb-1080f791d716"></a>
+  <a href="https://youtu.be/5-I1lT6Jbdo?si=wGpsr6u5t_PQ2pt7"><img src="https://github.com/user-attachments/assets/5193dda0-8897-4248-8316-f2793dc1b628"></a>
+</p>
 
 <img width="2000" height="2048" alt="Image" src="https://github.com/user-attachments/assets/d17a3740-a1be-47b2-b7aa-a0261186d3d5" />
 <p align="center">*just my art lol*</p>
