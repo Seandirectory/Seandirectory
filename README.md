@@ -1,6 +1,6 @@
 <p align="center">
   <a href="https://seildoherty.straw.page/">Strawpage</a> |
-  <a href="https://beatzz0fsean.atabook.org/">Atabook</a> |
+  <a href="https://seandirectory.atabook.org/">Atabook</a> |
   <a href="https://guns.lol/seandirectory">Guns.lol</a> |
   <a href="https://toyhou.se/Koshilly">Toyhouse</a>
 
@@ -44,12 +44,11 @@ I'm pretty selective about who i follow/only follow my friends so sorry if i don
 </p>
 <br>
 <br>
-!Fandoms(Just know, not really mean im in): Forsaken, Die Of Death, Alan Becker, Let Him Go, Pressure, Phighting, Block Tales, TR:UD, Ocean Terror, PWNED By 14:00, ^_^, Dream Game, FNF.<br> <br>
+!Fandoms(Just know, not really mean im in): Forsaken, Die Of Death, Alan Becker, Let Him Go, Pressure, Phighting, Block Tales, TR:UD, Ocean Terror, PWNED By 14:00, ^_^/HWWHP, Dream Game, FNF.<br> <br>
 
 !ARGs: *Seildirectory*, IHasAFaceLULZ, Brandonworks, Rochas313, Recall A Hollow Heart, CDArchives, 4amanda4, Skatingrease, House encounter.<br> <br>
 
-!Kins: **Sean**(THE MOST HEAVY KIN), Bluudud, C00lkidd[TRUD], Periastron(?)
-
+!MYTHS: Grocery Gang, AloneTraveler, Error 45229 (not popular bruh)
 <br>
 <br>
 
