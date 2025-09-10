@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-<img width="200" height="108" alt="Image" src="https://github.com/user-attachments/assets/30f3fa68-400d-4814-a372-b3465565fd6c" />
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/6fdebd61-9117-4b3f-9ce8-cbbad10d97bf" />
 </p>
 
 - C+H Freely, always welcome ^_^  
@@ -40,7 +40,7 @@ I'm pretty selective about who i follow/only follow my friends so sorry if i don
 </p>  
 <br>
  <p align="center">
-  <img src="https://github.com/user-attachments/assets/3b9787f6-12ac-4045-9eb1-e4a347e86b17" />
+  <img src="https://github.com/user-attachments/assets/c20d2034-7c7c-4561-909b-f06b97069a57" />
 </p>
 <br>
 <br>
@@ -48,22 +48,17 @@ I'm pretty selective about who i follow/only follow my friends so sorry if i don
 
 !ARGs: *Seildirectory*, IHasAFaceLULZ, Brandonworks, Rochas313, Recall A Hollow Heart, CDArchives, 4amanda4, Skatingrease, House encounter.<br> <br>
 
-!MYTHS: Grocery Gang, AloneTraveler, Error 45229 (not popular bruh)
+!MYTHs: Grocery Gang, AloneTraveler, Error 45229 (not popular bruh)
 <br>
 <br>
 
 ***<p align="center">More info is on my strawpage and pronouns ^_^ !</p>***
-
-<br>
 <br>
  <p align="center">
-  <img src="https://github.com/user-attachments/assets/5e6ac2c8-247a-4794-a03c-e43f2b652988" /> 
+  <img src="https://github.com/user-attachments/assets/5a099864-a7dd-4d07-a8d4-bf99a56cb1fa" /> 
 </p>  
 
 <p align="center">
   <a href="https://youtu.be/Q1oNU__KRqk?si=UKbTA5JwZQtkZRwu"><img src="https://github.com/user-attachments/assets/86e39b28-9877-475f-85eb-1080f791d716"></a>
   <a href="https://youtu.be/5-I1lT6Jbdo?si=wGpsr6u5t_PQ2pt7"><img src="https://github.com/user-attachments/assets/5193dda0-8897-4248-8316-f2793dc1b628"></a>
 </p>
-
-<img width="2000" height="2048" alt="Image" src="https://github.com/user-attachments/assets/d17a3740-a1be-47b2-b7aa-a0261186d3d5" />
-<p align="center">*just my art lol*</p>
