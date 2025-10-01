@@ -46,6 +46,8 @@ I'm pretty selective about who i follow/only follow my friends so sorry if i don
 <br>
 !Fandoms(Just know, not really mean im in): Forsaken, Die Of Death, Alan Becker, Let Him Go, Pressure, Phighting, Block Tales, TR:UD, Ocean Terror, PWNED By 14:00, ^_^/HWWHP, Dream Game, FNF.<br> <br>
 
+!Object Show Community(OSC): BDFI/TPOT, Animatic Battle, HJFONE // Watchlist: II, MOSS, PPT2, ITFT, OBS, TNM, KFC.<br> <br>
+
 !ARGs: *Seildirectory*, IHasAFaceLULZ, Brandonworks, Rochas313, Recall A Hollow Heart, CDArchives, 4amanda4, Skatingrease, House encounter.<br> <br>
 
 !MYTHs: Grocery Gang, AloneTraveler, Error 45229 (not popular bruh)
