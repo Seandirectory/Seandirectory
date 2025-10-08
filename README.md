@@ -14,11 +14,11 @@
 
 - C+H Freely, always welcome ^_^  
 - Cover VERY uncomfort/trigger unless friends sorry! I mostly offtab so w2i.  
-- Read my pronouns before you interact/with caution. Don't ever copy my skin or i'll strangle u.  
-- I'm online on pony town a lot, even though my playtime is nonexistent so don't mind seeing me in a certain spot all the time LOL.  
-- Sometimes I feel awkward sitting with a lot of ppl who are "not" my friends, I tend to leave and find a more empty seat. sorry  
-- I will always be comfortable with C+H even if my mood is unstable, but please don't try to interact with me at that time.!  
+- Read my pronouns before you interact/with caution. Can get insp from my skin BUT don't ever copy my skin or i'll strangle you.  
+- I will automatically "leave" if I feel uncomfortable and unsafe. So please don't ask the reason thanks:')  
+- Always be comfortable with C+H even if my mood is unstable, but please don't try to interact with me at that time.!  
 - Forsaken & Dandy's World pls iwec. Kit/Emojicat community DNI.
+## and please, PLEASE. DON'T COPY MY BEHAVIOR. I REALLY HATE THAT.  
 
   ![Image](https://github.com/user-attachments/assets/4e54fa22-f47e-40cd-9cc8-8702c02f2132)  ![Image](https://github.com/user-attachments/assets/0b5470c0-acf4-44dc-a2bf-b1194d9edc03)  ![Image](https://github.com/user-attachments/assets/87cd2784-b9b1-4161-a0b9-ade8163ed052)  ![Image](https://github.com/user-attachments/assets/29000ff3-6903-4e85-b9d9-511123a41b92) ![Image](https://github.com/user-attachments/assets/aaa54deb-0c08-4332-85f2-da9e9373285b)
 
@@ -29,7 +29,7 @@
 # ***Nilspace***
 Hey, i prefer to use pronouns They/Them or He/Him, please don't use She/Her for me, thank you.
 
-I like to be called Sean/Seil or Beatzz (My old name is for old friends only !)  
+I like to be called Sean/Seil or Beatzz, or any my kin name ok  
 I'm pretty selective about who i follow/only follow my friends so sorry if i don't follow back;(
 <br>
 <br>
@@ -46,7 +46,7 @@ I'm pretty selective about who i follow/only follow my friends so sorry if i don
 <br>
 !Fandoms(Just know, not really mean im in): Forsaken, Die Of Death, Alan Becker, Let Him Go, Pressure, Phighting, Block Tales, TR:UD, Ocean Terror, PWNED By 14:00, ^_^/HWWHP, Dream Game, FNF.<br> <br>
 
-!Object Show Community(OSC): BDFI/TPOT, Animatic Battle, HJFONE // Watchlist: II, MOSS, PPT2, ITFT, OBS, TNM, KFC.<br> <br>
+!Object Show Community(OSC): BDFI/TPOT, Animatic Battle, HJFONE, ITFT // Watchlist: II, MOSS, PPT2, OBS, TNM, KFC, LOTS.<br> <br>
 
 !ARGs: *Seildirectory*, IHasAFaceLULZ, Brandonworks, Rochas313, Recall A Hollow Heart, CDArchives, 4amanda4, Skatingrease, House encounter.<br> <br>
 
