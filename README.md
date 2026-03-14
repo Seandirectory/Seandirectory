@@ -1,4 +1,7 @@
 <p align="center">
+ Remaking this strawpage!!
+
+<p align="center">
   <a href="https://seildoherty.straw.page/">Strawpage</a> |
   <a href="https://seandirectory.atabook.org/">Atabook</a> |
   <a href="https://guns.lol/seandirectory">Guns.lol</a> |
@@ -29,11 +32,11 @@
 # ***Nilspace***
 Hey, i prefer to use pronouns They/Them or He/Him, please don't use She/Her for me, thank you.
 
-I like to be called Sean/Seil or Beatzz, or any my kin name ok  
+Call me Sean//Slingshot//Ivan or ANY kinnie names  
 I'm pretty selective about who i follow/only follow my friends so sorry if i don't follow back;(
 <br>
 <br>
-#### ***<p align="center">//PLEASE INTERACT CAREFULLY WITH ME, ESPECIALLY WHEN YOU MENTION SEAN!!! I have unstable mood sobs//</p>***
+#### ***<p align="center">//PLEASE IF YOU YUMESHIP W SEAN DON'T INT UNLESS WE'RE ALREADY FRIENDED, YOU'VE BEEN WARNED//</p>***
 <br>
   <p align="center">
   <img src="https://github.com/user-attachments/assets/d9bd216d-24b2-4332-86eb-1dec02a63485" /> 
@@ -44,13 +47,8 @@ I'm pretty selective about who i follow/only follow my friends so sorry if i don
 </p>
 <br>
 <br>
-!Fandoms(Just know, not really mean im in): Forsaken, Die Of Death, Alan Becker, Let Him Go, Pressure, Phighting, Block Tales, TR:UD, Ocean Terror, PWNED By 14:00, ^_^/HWWHP, Dream Game, FNF.<br> <br>
-
-!Object Show Community(OSC): BDFI/TPOT, Animatic Battle, HJFONE, ITFT // Watchlist: II, MOSS, PPT2, OBS, TNM, KFC, LOTS.<br> <br>
-
-!ARGs: *Seildirectory*, IHasAFaceLULZ, Brandonworks, Rochas313, Recall A Hollow Heart, CDArchives, 4amanda4, Skatingrease, House encounter.<br> <br>
-
-!MYTHs: Grocery Gang, AloneTraveler, Error 45229 (not popular bruh)
+!In love with psychological horror games . And,and and roblox ARGs obvious ...<br> <br>
+!Also Skittles is my comfor character when venting... please don't hate^^
 <br>
 <br>
 
